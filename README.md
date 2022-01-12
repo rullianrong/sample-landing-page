@@ -16,3 +16,6 @@ Photo by Pixabay from Pexels
 https://www.pexels.com/photo/computer-screen-turned-on-159299/
 Photo by Polina Zimmerman from Pexels
 https://www.pexels.com/photo/books-in-library-3747511/
+
+icon by Flaticon
+https://www.flaticon.com/premium-icon/bug_854649?term=bug&page=1&position=10&page=1&position=10&related_id=854649&origin=search
